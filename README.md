@@ -24,5 +24,4 @@ Connect With Me
 - LinkedIn: [Your LinkedIn Profile](https://linkedin.com/in/YourUsername)
 
 
-⭐ *"Learning, building, and growing one project at a time."*
 
